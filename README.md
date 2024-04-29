@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rynxia
+- 👋 Hi, I’m Rynxia
 - 👀 I’m interested in arts n music_🎶
 - 🌱 I’m currently learning this acc
 - 💞️ I’m looking to be friends w youu_♡
